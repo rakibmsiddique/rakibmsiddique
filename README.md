@@ -1,4 +1,4 @@
-!["Python Programmer👨‍💻| AI & Data Science Enthusiast🤖"](https://media.licdn.com/dms/image/v2/D5616AQEOWZLWu3AlkQ/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1722603024134?e=1738195200&v=beta&t=VSA4pY99vBf4JoD_tDS40EqstMBAsGqB778j13D117U)
+!["Python Programmer👨‍💻| AI & Data Science Enthusiast🤖"](https://media.licdn.com/dms/image/v2/D5616AQHKFKef2-V7Yg/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1732527510158?e=1738195200&v=beta&t=AXInosfYO9vuBL32U8aqOgghKJo0jIBGHe9v3gEx7DU)
 
 
 ### Hi there 👋, I'm Rakib Siddique!

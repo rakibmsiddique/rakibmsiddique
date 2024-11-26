@@ -1,4 +1,4 @@
-!["Python Programmer👨‍💻| AI & Data Science Enthusiast🤖"](https://x.com/rakibmsiddique/header_photo)
+!["Python Programmer👨‍💻| AI & Data Science Enthusiast🤖"](https://pbs.twimg.com/profile_banners/1667531024048467968/1732657157/600x200)
 
 
 ### Hi there 👋, I'm Rakib Siddique!

@@ -1,4 +1,4 @@
-!["Python Programmer👨‍💻| AI & Data Science Enthusiast🤖"](https://media.licdn.com/dms/image/v2/D5616AQHKFKef2-V7Yg/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1732527510158?e=1738195200&v=beta&t=AXInosfYO9vuBL32U8aqOgghKJo0jIBGHe9v3gEx7DU)
+!["Python Programmer👨‍💻| AI & Data Science Enthusiast🤖"](https://x.com/rakibmsiddique/header_photo)
 
 
 ### Hi there 👋, I'm Rakib Siddique!
